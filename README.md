@@ -13,4 +13,4 @@ leandrosouzamartins15lsm@gmail.com
 
 ![](https://media1.tenor.com/m/3wen1lf5mK8AAAAC/dragon-ball-z-goku.gif)
 
--em breve futuros projetos por aki fica de👁️ para não poder nada!
+-em breve futuros projetos por aki fica de👁️ para não peder nada!
